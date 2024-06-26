@@ -2,4 +2,4 @@
 
 # Discord - [Join](https://discord.com/invite/XDtMY6rhCx)
 
-# Tutorial - [YouTube]()
+# Tutorial - [YouTube](https://youtu.be/nxCFMHF5gIA?si=aRt7ibOUE0tGIyse)
